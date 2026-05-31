@@ -2,6 +2,7 @@
 
 ### if you hate me just tell me im such a disgusting fuckup just tell me im a disgusting fuckup i know im a disgusting fuckup just tell me i am so i can fucking hurt myself and cry im such a fuckup
 
+<img width="530" height="201" alt="image" src="https://github.com/user-attachments/assets/c9e2174c-2413-4c9b-a897-0710ae8cca2c" />
 
 
 <!-- try and fork my shit again youll get whats coming to you pussy boy
